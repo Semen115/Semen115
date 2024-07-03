@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Semen115
+- 🌱 I’m currently learning working in github
+- 📫 How to reach me: klemovelrey@mail.ru
+- 😄 Pronouns: he
+- ⚡ Fun fact: Im playing dota2)
